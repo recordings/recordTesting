@@ -21,6 +21,4 @@
 
 * kolejne pomysły:
 * 
-
-
 zmiany
