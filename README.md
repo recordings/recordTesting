@@ -19,4 +19,4 @@
 
 ## Nowa sekcja
 
-* 
+* kolejne pomysły:
